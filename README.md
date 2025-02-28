@@ -1,5 +1,5 @@
 - 👋🏻 oii, eu sou a Gabriele 
 - 🌱 plantas, animais, matemática e livros 
-- 🩷 15 anos 
-- 😄 apelido Gabi 
+- 15 anos 
+- apelido Gabi 
 - ⚡ ccm ceajor 
